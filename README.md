@@ -1,1 +1,3 @@
-# Screenshot![Screenshot ](https://github.com/Kwangcg/Music-Player-App/assets/157977870/04d7e50f-f3ce-4f59-959e-3ce2b229e54d)
+# Video
+https://github.com/Kwangcg/Music-Player-App/assets/157977870/f3286277-d68f-470f-b574-7c8fe945dfd4
+
